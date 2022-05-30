@@ -1,0 +1,5 @@
+- 👋 Oi, eu sou @klauckkj
+- 👀 Estou interessado em design
+- 🌱 Estou aprendendo no momento design 
+- 💞️ Estou procurando colaborar 
+- 📫 Meu e-mail é joao.klauck@escola.pr.gov.br - 
